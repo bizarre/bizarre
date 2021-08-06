@@ -1,1 +1,1 @@
-[insert cool svg animated graphs and arbitrary letter-graded github profile]
+You don't climb into a T-180 to be a driver. You do it because you're driven.
